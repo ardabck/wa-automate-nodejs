@@ -40,7 +40,7 @@ Licensor hereby grants permission by this license ("License"), free of charge, 
       * climate misinformation
       * child endangerment
       * violence (except when required to protect public safety)
-      * burning of forests
+      * destruction of forests
       * deforestation
       * hate speech or discrimination based on age, gender, gender identity, race, sexuality, religion, nationality
 
